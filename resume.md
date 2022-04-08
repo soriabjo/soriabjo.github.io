@@ -2,11 +2,11 @@
 ![](kanye-west-4.png)
 ## Links
 
-Twitter: https://twitter.com/kanyewest
+[Twitter](https://twitter.com/kanyewest)
 
-Instagram: https://www.instagram.com/kanyewest/?hl=en
+[Instagram](https://www.instagram.com/kanyewest/?hl=en)
 
-YouTube: https://www.instagram.com/kanyewest/?hl=en
+[YouTube](https://www.youtube.com/channel/UCs6eXM7s8Vl5WcECcRHc2qQ)
 
 ## Summary
 
