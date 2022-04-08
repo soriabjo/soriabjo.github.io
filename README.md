@@ -1,1 +1,1 @@
-# soriabjo.github.io
+GEOG 458 WK01 Lab - Project Management with GitHub and testing with Markdown
